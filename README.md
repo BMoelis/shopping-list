@@ -1,5 +1,8 @@
 - Eggs
 - Guacamole
-- Whole Grain Toast
-- Garlic Salt
-- Black Pepper
+- Whole grain toast
+- Garlic salt
+- Black pepper
+- Israeli couscous
+- Salmon fillets 
+- Red bell peppers
