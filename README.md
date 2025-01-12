@@ -1,0 +1,5 @@
+- Eggs
+- Guacamole
+- Whole Grain Toast
+- Garlic Salt
+- Black Pepper
